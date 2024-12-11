@@ -1,0 +1,7 @@
+- Hi, I’m @tobetx
+- I’m interested in programming, gaming, editing.
+- I’m currently learning Python and Javascript.
+- I’m looking to collaborate to any projects to help me enhance my python skills.
+- How to reach me. Contact me "@tobeoruche@gmail.com" or "@orucheopara@gmail.com"
+- Pronouns: He/Him
+- Fun fact: I'm a highschool junior simply trying to learn python and other programming languages.
